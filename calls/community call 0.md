@@ -2,6 +2,8 @@
 
 2022-10-26, 12-1p PT
 
+[Video](https://youtu.be/XBCnZ0ssc84) (partial)
+
 ## Participants
 
 - Jason - zkonduit
